@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ECT 
 - 📫 How to reach me: Mohinikunche27@gmail.com
 - 😄 Pronouns:good listener 
-- ⚡ Fun fact:still thinking🤔🤔🤔🤔🤔
+- ⚡ Fun fact:still thinking🤔🤔🤔🤔
 
